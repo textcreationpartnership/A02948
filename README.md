@@ -37,8 +37,10 @@ This keyboarded and encoded edition of the
 
 #####Body#####
 
-1. DIEV ET MON DROIT
-IT is to be vnderſtande that all good ſewer: treue and loyal trewſe communicatiue and marchant eſtatPVbliſhed at Roan (folowinge the kynges letters and cōmandements) by the ordounance of that noble mIT is to be vnderſtande that all good ſewer: treue and loyal trewſe communicatiue and marchant eſtat
+1. ❧THE COPIE OF THE Pblication of the trewſe made betwene the moſt Criſtien Kynge Henry ſecond of that name Themperour: and the Kyng of Ingland his ſonne publiſhed at roan on thurſday the xx. daye of Februarry.
+
+    _ DIEV ET MON DROIT
+IT is to be vnderſtande that all good ſewer: treue and loyal trewſe communicatiue and marchant eſtatPVbliſhed at Roan (folowinge the kynges letters and cōmandements) by the ordounance of that noble m
 **Types of content**
 
   * There are 7 **verse** lines!
